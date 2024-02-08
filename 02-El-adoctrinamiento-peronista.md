@@ -177,3 +177,141 @@ A esta segunda operacion del metodo que consiste en analizar y apreciar la situa
 >
 > -- Peron, 05 Abril 1951
 
+La resolucion es ya un plan de accion. Tratandose de inculcar la doctrina, conocida la situacion y debidamente analizada, se impone elaborar un plan que posibilita la accion de persuadir a los adoctrinados acerca de las verdades que se sustentan. Este plan de accion puede tener origen en dos fuentes:
+
+- Las necesidades doctrinarias del ambiente donde actuamos
+- Las ordenes o campañas de accion que emanan de las autoridades superiores del Movimiento
+
+### 02.03.03.A - Lucha tactica. Consignas individuales.
+
+El predicador que conoce y aprecia la situacion de su ambiente, descubre constantemente un sinnumero de oportunidades para exponer, aclarar o defender la doctrina. Es lo que podriamos denominar la *lucha de sector* o *lucha tactica*.
+
+Su mayor o menor actividad en este sentido depende directamente de su mayor o menor fervor peronista.
+
+Por eso consideramos y llamamos *consignas individuales* a cada una de estas oportunidades, que son verdaderas obligaciones, que tiene el peronista para actuar.
+
+En la practica tendra que tomarse como una norma peronista el hecho de no terminar una jornada sin haber realizado por lo menos una de las consignas individuales, ya sea con la palabra, ya sea con realizaciones, ya sea con el ejemplo de una vida al servicio de la Patria y del Pueblo.
+
+### 02.03.03.B - Lucha estrategica. Consignas generales.
+
+Los altos comandos del Movimiento, que dirigen la lucha general, la lucha estrategica, tambien previo conocimiento y apreciacion de la situacion general, envian a cada predicador consignas u ordenes generales.
+Se confia al buen sentido y criterio del predicador el cumplirlas con estrictez y con inteligencia. Con estrictez para no alterarlas en lo esencial; con inteligencia para aplicarlas con las variantes accidentales que cada caso requiera.
+
+El plan de accion del predicador se reduce a un doble juego de consignas individuales y colectivas que le fijan objetivos y le señalan medios para conseguirlos.
+
+Sintetizamos esta tercera operacion del metodo con el vocablo *OBRAR*.
+
+De esta manera *ver*, *juzgar* y *obrar* nos recordaran las tres operaciones del metodo propuesto por Peron.
+
+## 02.04 - Objeto
+
+El adoctrinamiento peronista tendra por objeto inculcar la doctrina peronista, es decir, peronizar los ambientes. Ese objeto debe se referido y aplicado tanto al predicador como a los adoctrinados.
+
+### 02.04.1 - Con respecto al predicador
+
+El adoctrinamiento, en lo que se refiere al predicador, tiene 3 funciones:
+
+1. Proporcionarle un esquema general de la doctrina peronista
+2. Enseñarle la teoria y las formas de ejecucion de la misma
+3. Persuadirlo a vivir y predicar dicha doctrina
+
+#### 02.04.1.A - Esquema general
+
+> "Por doctrina entendemos, como se ha entendido siempre, el conjunto de principios fundamentales o esenciales que sostienen y son el punto de partida de una escuela cualquiera, filosofica, politica, economica, social, cultural, etc. Asi considerada la Doctrina Peronista, abarca un conjunto de principios de orden filosofico, social, economico y politico y debe ser asi porque es una filosofia de vida".
+>
+> -- Peron, 17 Octubre 1950
+
+La Doctrina no esta encuadrada entre los sistemas filosoficos puramente especulativos, ni esta vinculada sino por su dependencia (como todas las ciencias) con disciplinas filosoficas, tales como la Metafisica, la Teodicea, la Criteriologia, etc.
+
+Partiendo del estudio del hombre, que es una dignidad y que debe ser dignificado, establece los principios generales que deben regir la vida del mismo, de manera tal que esa vida llegue a ser la expresion de su dignidad humana.
+
+> "Empecemos por establecer que el hombre o la mujer, cualquiera sea su condicion, tiene un supremo derecho que no se le puede negar a nadie en la vida: la defensa de su propia dignidad y la elevacion de su persona".
+>
+> -- Peron, 19 Junio 1951
+
+> "Solo asi podremos partir de ese *yo* vertical, a un ideal de humanidad mejor, suma de individualidades con tendencia a un continuo perfeccionamiento".
+>
+> -- Peron, 09 Abril 1949
+
+1. El hombre es una dignidad (Principio fundamental filosofico)
+  - Es principio y fin en si mismo (valores individuales)
+  - Tiene una funcion social (valores sociales)
+  - Tiene valores espirituales (armonia de materia y espiritu)
+2. Justicia social (Principio fundamental sociologico)
+  - Elevar la cultura social (sociologia de la cultura)
+  - Dignificar el trabajo (sociologia del trabajador, de la familia, del Pueblo, del Estado)
+  - Humanizar el capital (sociologia economica)
+3. Independencia economica (Principio fundamental economico)
+  - Recuperar el patrimonio nacional (primera etapa)
+  - Reactivar la economica (poner el capitl al servicio de la economia)
+  - Justa distribucion de la riqueza (poner a la economia en funcion social)
+4. Soberania politica (Principio fundamental politico)
+  - Respetar la soberania de los ciudadanos (derechos de los ciudadanos)
+  - Respetar la soberania del Pueblo (democracia)
+  - Respetar la soberania de la Nacion (libre determinacion de los Pueblos)
+5. Objetivos de la Doctrina
+  - Inmediato: Union nacional
+  - Ultima: Felicidad del Pueblo y Grandeza de la Nacion
+
+#### 02.04.1.B - Teoria y Formas de Ejecucion
+
+> "La teoria es el desarrollo de la realizacion concebida teoricamente".
+>
+> -- Peron, 19 Abril 1950
+
+La teoria de la realizacion es un desarrollo teorico concebido, meditado y solidamente criticado que nos explica como se debe aplicar un principio doctrinario en un momento y lugar determinados.
+
+Un principio se conoce, se acepta y se vive, pero todo desarrollo teorico que nos lleve a realizar algo exige un trabajo intelectual, conocimientos, ejercitacion, estudio, etc.
+
+Una teoria sin doctrina no llegaria a realizarse. Una teoria sin doctrina es como un cuerpo sin alma.
+
+> "La doctrina da principios. La teoria es el analisis de esos principios y su desarrollo".
+>
+> -- Peron, 29 Marzo 1950
+
+> "Las formas de ejecucion son el metodo de accion para poner la teoria en ejecucion".
+>
+> -- Peron, 29 Marzo 1950
+
+Es un acopio de medios aptos para lograr los fines de la realizacion y el paso inmediato anterir a la realizacion.
+
+La doctrina establece que debemos hacer; la teoria establece el como debemos realizarlo; las formas de ejecucion establecen con que medios debemos actuar.
+
+#### 02.04.1.C - Estilo de vida peronista
+
+> "La accion esta siempre sobre la concepcion"
+>
+> -- Peron, 29 Marzo 1950
+
+Tratandose de la filosofia de la vida, poco valen los principios, poco valen las teorias, si no se llevan a la practica.
+
+El peronismo ha instituido un nuevo estilo de vida. Por ello con justa razon podemos hablar de una Nueva Argentina.
+
+Dos objetivos superiores le ha asignado Peron a la Nueva Argentina y por ende a la vida de cada uno de los argentinos: la felicidad del Pueblo y la grandeza de la Nacion.
+
+> "La mayor felicidad consiste en servir a los demas segun el mandato cristiano del amor".
+>
+> -- Peron, 31 Octubre 1949
+
+> "Pensemos que no hay nada mas grande que el sacrificio".
+>
+> -- Peron, 11 Enero 1947
+
+Un concepto unico campea en el pensamiento de Peron cuando habla de felicidad y grandeza: el concepto de sacrificio, abnegacion, entrega.
+
+Es este el principio y fundamento de toda la mistica peronista y de su consecuencia: la Etica Peronista.
+
+Es el sello y el estilo de vida que nos caracteriza, entregado al bien y a la felicidad de los demas, es el coronamiento y la maxima aspiracion de todos los que colaboramos con Peron en el adoctrinamiento.
+
+Tenemos un ejemplo luminoso! Eva Peron, que deshojo su vida en el sacrificio y en la abnegacion nos esta señalando un rumbo y una meta!
+
+### 02.04.2 - Con respecto a los adoctrinados
+
+El adoctrinamiento paulatinamente ira inculcando en el Pueblo ese estilo de vida y esa mistica peronista.
+Formar hombres buenos y virtuosos es el objetivo primordial del adoctrinamiento, en lo que se refiere al Pueblo.
+Esa es la palabra de orden de Peron repetida no una, sino mil veces.
+De ello se derivara otra consecuencia, el incremento del numero de predicadores de la Doctrina.
+Cuando todos los argentinos esten persuadidos de que el objeto de su vida es la virtud, entonces los predicadores habremos cumplido con nuestra mision.
+El adoctrinamiento peronista habra colmado su objetivo.
+
+
