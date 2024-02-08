@@ -18,7 +18,7 @@ Los peronistas no admintimos otra fuente doctrinaria que la vida, las realizacio
 
 ## 02.02 - Metodo
 
-> "Nuestra disciplina es de fondo, de persuacion".
+> "Nuestra disciplina es de fondo, de persuasion".
 >
 > -- Peron 21 Octubre 1952
 
