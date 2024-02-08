@@ -51,10 +51,14 @@ Cuando se inculca una doctrina entran en accion 3 esferas fundamentales de la pe
 - Adoctrinamiento
   
   - Falso
+    
     - En el individualismo
     - En el colectivismo
+      
   - Verdadero
+    
     - Individual
     - Colectivo
+      
       - General
       - Especializado
