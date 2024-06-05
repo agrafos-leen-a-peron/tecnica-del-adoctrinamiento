@@ -131,11 +131,19 @@ constituyendo lo que podriamos llamar "espectro luminoso" o "arco iris de la per
 - Lo cultural
 - Lo social
 
+No estan presentados en un orden particular.
+
 Las deficiencias que se manifiesten o las perfecciones que se conquisten en alguna
 de estas facetas de la personalidad incidiran seguramente en esa manifestacion 
 externa, propia de cada ser humano, que constituye la personalidad.
 
-El predicador tiene por mision formar hombres perfectos, sanos, sabios, prudentes.
+Cuando en el hombre todas ellas estan conjugadas armonicamente y cada una adquiere
+su perfecto desarrollo en funcion de todo el hombre que es espiritu y materia, ser
+individual y social, entonces el conjunto, como los siete colores del arco iris, 
+constituye un solo haz de luz, la personalidad perfecta, que es antorcha que señala
+rumbos y caminos de vida.
+
+El predicador tiene por mision formar personas perfectas, sanas, sabias y prudentes.
 Posee un magnifico campo de accion, cuando conoce integralmente su material de trabajo,
 es decir, la personalidad humana, sus modalidades, su psicologia.
 
@@ -143,4 +151,7 @@ En el adoctrinamiento individual debera tener en cuenta el menor o mayor desarro
 cada faceta de la personalidad antes de pretender inculcar la doctrina, puesto que las
 distintas personas, segun su propia psicologia, recibiran nuestra predicacion de manera
 muy desemejante.
+
+El adoctrinamiento individual es mejoramiento, perfeccionamiento de personas. Es, entonces, necesario conocer bien a las personas para inducirlos correcta y objetivamente
+a esa perfeccion.
 
